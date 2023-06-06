@@ -1,1 +1,2 @@
-God is love!
+God is love! 
+ALL THE TIME.
